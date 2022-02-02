@@ -1,1 +1,0 @@
-# DeirAlMedina.github.io
